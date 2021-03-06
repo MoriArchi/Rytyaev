@@ -2,7 +2,7 @@
 
   Mikhail Rytyaev himself is undoubted Robinson: his small island is hung with fishing nets, lifebuoys, pirate sabers. Everything was saved from the studio on Pyatnitskaya torpedoed by Moscow bankers. For a long time, his "island" was a meeting place for various representatives of the cultural society of Dnepropetrovsk and the post-Soviet space in general.
 
-  Until 1971 he worked as a theater designer in Ukraine. Then he moved to Moscow, where he worked as the chief artist of the Moscow theater "Hermitage".
-Since 1976 freelance artist.
+  Until 1971 he worked as a theatre artist in Ukraine. Then he moved to Moscow, where he worked as the chief artist of the Moscow theater "Hermitage".
+Since 1976 - freelance artist.
 
-  Mikhail Rytyaev's works are in the Lviv Museum of Ukrainian Art, the Muranovo Tyutchev Estate Museum, the Voronezh Regional Museum of Fine Arts, the Vologda Museum, as well as in the Karen Berne galleries (London), "369" (Edinburgh), the Seibelman Gallery (Mainz) and private collections in Russia, USA, Japan, Finland, Germany.
+  Mikhail Rytyaev's works are in the Lviv Museum of Ukrainian Art, the Muranovo Estate Museum, the Voronezh Regional Museum of Fine Arts, the Vologda Museum, as well as in the Karen Berne galleries (London), "369" (Edinburgh), the Seibelman Gallery (Mainz) and private collections in Russia, USA, Japan, Finland, Germany.
